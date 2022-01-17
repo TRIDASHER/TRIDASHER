@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TRIDASHER
+- 👀 I’m interested in destroying andrey
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate on something
+- 📫 How to reach me
